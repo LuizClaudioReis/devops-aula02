@@ -1,4 +1,4 @@
 3 Atores favoritos
 Paulo Gustavo
-Tata Werneck
+Tata Werneck  
 Junior Chico
